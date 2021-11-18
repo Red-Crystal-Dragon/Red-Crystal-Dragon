@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Red-Crystal-Dragon
 - 👀 I’m interested in digital design, graphic design, illustration
-- 🌱 I’m currently learning Adobe Creative Suite including Adobe Premiere
+- 🌱 I’m currently using Adobe Creative Suite including Adobe Premiere
 - 💞️ I’m looking to collaborate on NFT creation
 - 📫 How to reach me through my website at redcrystaldragon.com
 
